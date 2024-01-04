@@ -1,8 +1,11 @@
 ### Opa 👋
 
-# As vezes eu faço umas coisas
-# Mas só as vezes mesmo
-# Tipo, AS VEZES
+As vezes eu faço umas coisas
+
+Mas só as vezes mesmo
+
+Tipo, AS VEZES
+
 
 E nem boto aquiKKKKKK
 
