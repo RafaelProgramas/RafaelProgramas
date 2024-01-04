@@ -1,4 +1,10 @@
-### Hi there 👋
+### Opa 👋
+
+As vezes eu faço umas coisas
+Mas só as vezes mesmo
+Tipo, AS VEZES
+
+E nem boto aquiKKKKKK
 
 <!--
 **RafaelProgramas/RafaelProgramas** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
